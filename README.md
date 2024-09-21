@@ -1,5 +1,5 @@
 #  About Me:
-all repo private
+all repo private, esli otkroyu, to menya zakroyut)
 
 
 
